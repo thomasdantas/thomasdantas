@@ -1,3 +1,3 @@
 ## Hi, I'm Thomas Dantas 👋
 
-https://thomasdantas.com (in progress ⚒️)
+https://thomasdantas.com
